@@ -2,6 +2,7 @@
 
 ## Contact Information
 
+- Phone: 77 777 777 777
 - Email: wysocki.q@gmail.com
 
 ## Education
