@@ -1,1 +1,1 @@
-# rsschool-cv
+ghttps://wysockiq.github.io/rsschool-cv/cv
