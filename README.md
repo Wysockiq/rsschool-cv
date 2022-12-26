@@ -1,1 +1,1 @@
-ghttps://wysockiq.github.io/rsschool-cv/cv
+https://wysockiq.github.io/rsschool-cv/cv
